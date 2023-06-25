@@ -1,10 +1,8 @@
 <p align="center">
-𝗧𝗛𝗘 𝗠𝗢𝗦𝗧 𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟 𝗔𝗡𝗗 𝗔𝗡𝗜𝗠𝗘 𝗧𝗛𝗘𝗠𝗘 𝗕𝗢𝗧❤🖤
+𝗧𝗛𝗘 𝗠𝗢𝗦𝗧 𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟  𝗕𝗢𝗧🖤
 </p>
 
-<p align="center">
-  <img src="https://te.legra.ph/file/f2b0a5b123b8c6de9cb39.jpg">
-</p>
+
 
 </details>
 
